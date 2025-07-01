@@ -55,9 +55,10 @@ I aim to contribute to data-centric organizations by delivering optimized soluti
 - 📧 Email:  nikutiwari70@gmail.com 
 - 📱 Phone:
 +91-9554913106
-- 🔗 LinkedIn: [linkedin.com/in/shivesh122](https://www.linkedin.com/in/shivesh122/)  
+- 🔗 LinkedIn: [linkedin.com/in/shivesh](https://www.linkedin.com/in/shivesh-tiwari-68b79a245)
 - 🌐Portfolio:
-*https://linktr.ee/shivesh_1*
+
+   [🚀Launch My Journey](https://linktr.ee/shivesh_1)
 
 ---
 
